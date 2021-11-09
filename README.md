@@ -1,0 +1,5 @@
+- 👋 Hi, we are @SplinterShare.
+- 👀 We're interested to build a community for SplinterLands, and reward them.
+- 🌱 We're currently working full time on another successful project and we are expanding our universe.
+- 💞️ We're looking to show our code and give some security to investors on the project.
+- 📫 You can contact me on Telegram @OfficialLeafy or @KangaSVG
